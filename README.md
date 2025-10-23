@@ -1,0 +1,2 @@
+# kuabatujaya
+kua batujaya
